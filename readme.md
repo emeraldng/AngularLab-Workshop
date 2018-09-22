@@ -1,0 +1,1 @@
+[Glosario colaborativo](https://docs.google.com/document/d/1dB4y2IwHZRuZqKEsPo9yTjRpbGYdFv7NT29chkvkVS0/edit?usp=sharing)
